@@ -1,2 +1,2 @@
-# ptb
-just demo
+i am very importanat for myself so no worries i am very confidant guy how its possible to take a decigin to make my abilities are different i have to maintain all the things which is mandtory for me right now so do the practice too hard and do th epractic only you will get error barclays is not your first and last company which you will give the more bettter opurctnities so dont get panic
+its all  about luck. you will get everu=ythig which you have decided earlier so dont think about that, judt take care of halth because its very imporatnt 
